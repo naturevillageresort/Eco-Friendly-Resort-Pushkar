@@ -1,2 +1,5 @@
 # Eco-Friendly-Resort-Pushkar
 Luxury boutique resort in Pushkar offering serene nature stays with private pool villas, spa, adventure &amp; unforgettable experiences in Rajasthan’s peaceful lap.
+"Nestled on the peaceful outskirts of Pushkar in Rajasthan, Nature Village Resort is a luxurious boutique getaway where modern comfort meets the beauty of nature. Surrounded by lush greenery and tranquil landscapes, the resort offers beautifully appointed private pool villas, nature huts with jacuzzis, and family-friendly accommodations — each designed to create a relaxing and memorable escape.
+Whether you’re planning a romantic retreat, family holiday, or special event, the resort’s personalized hospitality ensures every moment is cherished. Guests can indulge in delectable multi-cuisine dining at the on-site restaurant “Swaad,” rejuvenate at the spa, or enjoy leisure and adventure activities such as horse riding, games, and cultural experiences.
+With warm service, spacious villas, private plunge pools, and a setting that feels both intimate and exotic, Nature Village Resort promises a peaceful and unforgettable stay in the heart of Rajasthan."
